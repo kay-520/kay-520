@@ -5,7 +5,7 @@ Java & JavaScript & Python
 
 Preparing for PMP ! ! !
 
-Yes, I got PMP ! ! ! 😎 😎
+Just do it ! ! ! 😎 😎
 
 Wechat: Kin_520
 
