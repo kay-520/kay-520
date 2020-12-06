@@ -1,5 +1,5 @@
 
-👷  &nbsp Fullstack Engineer
+👷  &nbsp; Fullstack Engineer
 
 👨‍💻  Java & JavaScript & Python
 
