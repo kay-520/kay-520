@@ -7,7 +7,7 @@
 
 😎  &nbsp; Just do it ! ! !  
 
-🐧  &nbsp; Wechat: Kin_520
+🐧  &nbsp; Wechat: Kin__520
 
 ⭐️  &nbsp; Blog: http://karma520.com/
 
