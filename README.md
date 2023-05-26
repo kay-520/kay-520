@@ -9,7 +9,7 @@
 
 🐧  &nbsp; Wechat: Kin__520
 
-⭐️  &nbsp; Blog: http://karma520.com/
+⭐️  &nbsp; Blog: http://kay-520.github.io /
 
 🎯  &nbsp; CSDN: https://blog.csdn.net/weixin_40826349
 
